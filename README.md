@@ -2,7 +2,7 @@
 
 I am Twe He Gam Aung. You can call me Gam. Originally I am from Myanmar but currently I live in Finland. I am a pathway student. 
 
-### Hi there 👋, Twe He Gam Aung
+
 #### Coding and content creating 
 ![Coding and content creating ](https://scontent-hel3-1.xx.fbcdn.net/v/t39.30808-6/335439380_515089614146898_7486613100601308172_n.jpg?stp=cp6_dst-jpg&_nc_cat=106&ccb=1-7&_nc_sid=5614bc&_nc_ohc=G32a57W90tEAX8FCHsG&_nc_ht=scontent-hel3-1.xx&oh=00_AfAWUfCVY2vSA9ZDwufGXKaez3AEu2meQ6K1YhQT5Tgd1g&oe=650C025B)
 
